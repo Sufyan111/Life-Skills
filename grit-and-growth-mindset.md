@@ -1,4 +1,4 @@
-# Learning Process - Assignment
+# Grit and Growth Mindset
 
 ## Question 1
 
